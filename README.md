@@ -1,6 +1,6 @@
 ﻿PHỤ KIỆN 3 MIỀN: 
 
-PK3M: 622/28 Cộng Hòa, P.13, Q.Tân Bình, TPHCM, Việt Nam
+PK3M: 229/55/1 Tây Thạnh, Tân Phú, TPHCM, Việt Nam
 
 Zalo/Facebook: +84.939.333326 (chỉ hỗ trợ bán hàng )
 
